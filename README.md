@@ -47,10 +47,3 @@ ________________________________________
 “I only have 2 options, Win or Die Trying”
 
 ________________________________________
-
-Lumban, Cruz Laguna	 
-
-Marl Euvan Matienzo
-Software Engineer at Accenture
-Sta. Cruz Laguna
-
